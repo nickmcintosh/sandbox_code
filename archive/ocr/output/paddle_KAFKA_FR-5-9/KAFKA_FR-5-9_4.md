@@ -1,0 +1,9 @@
+tēte penchée désir bloqué, soumis ou soumetteur,neutralisé, à connexion minima, souportrait-photo venir d'enfance, territorialité ou reterritorialisation.
+
+
+
+tēte relevée désir qui se redresse, ou se défile, et son musical =s'ouvre à de nouvelles connexions,bloc d'enfance ou bloc animal, déterritorialisation.
+
+
+
+Ce n'est pas encore ça. Ce n'est certes pas la musique organisée, la forme musicale, qui intéresse Kafka (dans ses lettres et son journal on ne relève que des anecdotes insignifiantes sur quelques musiciens). Ce n'est pas une musique composée, sémiotiquement formée, qui intéresse Kafka, mais une pure matière sonore. Si l'on recense les principales scènes d'intrusion sonore, on obtient à peu près : le concert à la John Cage, dans Description d'un combat où 1°) le Dévot veut jouer du piano, parce qu'il est sur le point d'être heureux ;2°) ne sait pas jouer ; 3°) ne joue pas du tout (< Deux messieurs saisirent la banquette et me portèrent ainsi a l'autre bout de la pièce, tout en sifflant un petit air et en me balançant en cadence 》);4°) est félicitéd'avoir si bien joué. Dans Recherches d'un chien, les chiens musiciens produisent un grand vacarme, mais on ne sait pas comment, puisqu'ils ne parlent, ne chantent ni n'aboient, faisant surgir la musique du néant. Dans Joséphine la cantatrice ou le Peuple des souris, il est improbable que Joséphine chante, elle siffie seulement et pas mieux qu'une autre souris, plutôt moins bien, de telle manière que le mystère de son art inexistant devient encore plus grand. Dans Amérique, Karl Rossman joue trop vite ou trop lentement, ridicule, et sentant & un autre chant monter en lui >. Dans la Métamorphose, le son intervient d'abord comme piaulement qui entraine la voix de Grégoire et brouille la résonance 
