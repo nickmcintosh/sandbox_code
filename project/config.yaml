@@ -3,11 +3,11 @@ pdf2image_threads: 2
 
 # ─── Torch & Parallelism ─────────────────────────────────
 # number of intra‐op threads for PyTorch
-torch_threads: 8
+torch_threads: 6
 # number of inter‐op threads for PyTorch
-torch_interop_threads: 4
+torch_interop_threads: 2
 # number of worker processes to run documents in parallel
-num_workers: 4
+num_workers: 1
 # whether to convert models + tensors to half precision
 half_precision: true
 
